@@ -28,8 +28,8 @@ This script is private and requires authentication.
 📣 Join the Community
 Get support, updates, and exclusive access through our channels:
 
-🗨️ Telegram Group: @independendropers
+🗨️ Telegram Group: https://t.me/independendropers
 
-💬 Discord Server: Join Here
+💬 Discord Server: https://discord.gg/Tuy2bR6CkU
 
-📺 YouTube Channel: Airdrop Independen
+📺 YouTube Channel: https://www.youtube.com/@airdropindependen
