@@ -33,4 +33,3 @@ Get support, updates, and exclusive access through our channels:
 💬 Discord Server: https://discord.gg/Tuy2bR6CkU
 
 📺 YouTube Channel: https://www.youtube.com/@airdropindependen
-ds
